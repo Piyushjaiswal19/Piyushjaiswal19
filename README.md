@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Piyushjaiswal19
 - 👀 I’m interested in competitive coding
-- 🌱 I’m currently learning java
-- 💞️ I’m looking to collaborate on project related with web development
+- 🌱 I’m currently learning new technology
+- 💞️ I’m looking to collaborate on project related with DSA
 - 📫 How to reach me mail me at piyushjaiswal2k2@gmail.com
 
 <!---
