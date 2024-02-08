@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **piyushjaiswal2k2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nFTEnPbU-wfw1c7Al7uy_oGKfCTOa9Ed/view?usp=sharing](https://drive.google.com/file/d/1nFTEnPbU-wfw1c7Al7uy_oGKfCTOa9Ed/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rwY1ZV9wdIC-Lb7ZFp_SEeBBVCGfnLlh/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
